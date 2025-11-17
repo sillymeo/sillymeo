@@ -1,16 +1,17 @@
-## Hi there 👋
 
-<!--
-**sillymeo/sillymeo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+														⸻✧⸻
+													my names （-＾▽＾-）
+													Smile 𐙚 Meo 𐙚 Rika
+													
+													she/her
+													discord : smilevy
+													ISFP-ish... i guess?
+													Turning 18 soon
 
-Here are some ideas to get you started:
+													𐙚 huii!!! hello!! haii!! *Does a backflip*
+													Note : I dont do anything in Pony town lol, I just love looking
+													at everyones creativity <33
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+													Interests 𐙚 Phighting DITF 𐙚 Poppy playtime 𐙚 Garten of Banban(funni)
+													𐙚 Bad Things 𐙚 Goat simulator 𐙚 R.E.P.O 𐙚 Pony town 𐙚 ARTTTTT!!!!
+														⸻✧⸻
