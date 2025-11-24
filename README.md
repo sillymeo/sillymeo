@@ -3,7 +3,7 @@
 my names （-＾▽＾-) \
 Smile 𐙚 Meo 𐙚 Rika
 													
-she/her\
+
 discord : smilevy\
 ISFP-ish
  
