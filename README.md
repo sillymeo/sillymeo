@@ -1,5 +1,5 @@
 <p align="center"><tt>⸻✧⸻ 
-I like(love) swocket chat
+I like(love) swocket chat || by barava2018 on twttr !!
 
 <img width="736" height="609" alt="Image" src="https://github.com/user-attachments/assets/d1be3394-d955-41fe-a482-a0ccc132eaa7" />
 
