@@ -11,7 +11,7 @@ ISFP
  
 <p align="center">𐙚 huii!!! hello!! haii!! *Does a backflip*
 ✅ Online ~ Free to INT
-🌙 Idle ~ Cuddle + Hug + Hide is allowed ~ late responses ~ off keyboard
+🌙 Idle ~ Cuddle + Hug + Hide is allowed ~ late responses ~ off keyboard ~ Off-tab
 ⛔ Busy ~ C+H is still allowed, just not in the mood to talk || Studying or HW || I could be drawing too!
 
 <p align="center">Hide behind me if u need to, I allow comfort <3!
@@ -21,6 +21,7 @@ ISFP
 Hazbin hotel fans - thin ice
 Helluva boss fans - thin ice
 Vivziepop supports - No.
+( Lowk I actually dont care if youre a fan, the shows just bother me and I dont wanna talk about the topic.)
 
 <p align="center">I visit 18+ servers sometimes but I mostly stay in safe servers.
 I make phighting cosplays ALL the time, mostly the NPCs! Also DITF characters cuz they're so silly :3 
