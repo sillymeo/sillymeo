@@ -28,7 +28,7 @@ I make phighting cosplays ALL the time, mostly the NPCs! Also DITF characters cu
 Things I say can be out of pocket so if i said smt that made u feel uncomfy pls LMK!!! 
 
 <p align="center">Interests 𐙚 Phighting ~ DITF 𐙚 Blocktales(BT!) 𐙚 Garten of Banban(funni)
-𐙚 Bad Things 𐙚 Goat simulator 𐙚 R.E.P.O 𐙚 Pony town 𐙚 4saken 𐙚 Regretavator 𐙚 Minecraft arg
+𐙚 Bad Things 𐙚 Goat simulator 𐙚 R.E.P.O 𐙚 Pony town 𐙚 4saken 𐙚 Regretavator 𐙚 Minecraft arg (SFAWTDE)
 (Im literally rocket you just dont know.)
 
 <p align="center">⸻✧⸻
