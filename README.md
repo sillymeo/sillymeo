@@ -18,10 +18,7 @@ ISFP
 
 <p align="center">🔴 DNI
 13 and below || Immature kids ~ If ur chill ig ure okay... but you're on thin ice!
-Hazbin hotel fans - thin ice
-Helluva boss fans - thin ice
-Vivziepop supports - No.
-( Lowk I actually dont care if youre a fan, the shows just bother me and I dont wanna talk about the topic.)
+Vivziepop supports
 
 <p align="center">I visit 18+ servers sometimes but I mostly stay in safe servers.
 I make phighting cosplays ALL the time, mostly the NPCs! Also DITF characters cuz they're so silly :3 
