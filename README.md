@@ -21,7 +21,6 @@ ISFP
 Vivziepop supports
 
 <p align="center">I visit 18+ servers sometimes but I mostly stay in safe servers.
-I make phighting cosplays ALL the time, mostly the NPCs! Also DITF characters cuz they're so silly :3 
 Things I say can be out of pocket so if i said smt that made u feel uncomfy pls LMK!!! 
 
 <p align="center">Interests 𐙚 Phighting ~ DITF 𐙚 Blocktales(BT!) 𐙚 Garten of Banban(funni)
