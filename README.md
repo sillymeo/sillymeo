@@ -1,7 +1,7 @@
 <p align="center"><tt>⸻✧⸻ 
 
-<p align="center">my names （-＾▽＾-) 
-Smile 𐙚 Meo 𐙚 Roquette
+<p align="center"> HIII PONY TOWN!!! Refer me as... （-＾▽＾-) 
+Smile 𐙚 Meo 𐙚 Rocket
 									
 <p align="center">discord : smilevy
 ISFP
