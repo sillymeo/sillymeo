@@ -28,7 +28,7 @@ Things I say can be out of pocket so if i said smt that made u feel uncomfy pls 
 𐙚 Bad Things 𐙚 Goat simulator 𐙚 R.E.P.O 𐙚 Pony town 𐙚 4saken 𐙚 Regretavator 𐙚 Minecraft args
 (Im literally rocket/Avery you just dont know. Strong kin moment)
 
-<p align="center"> MY KIN LIST!!! (If Im gone... Remember me in them...)
+<p align="center"> MY KIN LIST!!! (If Im gone... Remember me in them...) Artnotmine
 
 <img width="1757" height="1772" alt="Image" src="https://github.com/user-attachments/assets/f4a2746e-3ed2-47a6-8621-c2fd405fac0d" />
 
