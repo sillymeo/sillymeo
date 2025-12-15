@@ -13,12 +13,18 @@ ISFP
 🔲 In menu ~ Prolly re/making || w2i
 👁️‍🗨️ Looking 4 chat/roleplay ~ Self explanatory, mostly chat tho 
 
-<p align="center"> (I LOVE Rocket alright? I LOVE SWOCKET TOO. But I wish Rocket's character isnt solely based on that ship ALL the time, hes more than just Sword's bsf/bf... Bro has his own character AND a backstory which people tend to not mind/ignore! I just wish him as an individual gets more attention without the mention of Swocket :,3 /my opinion)
+<p align="center"> 🟢INT
+Phighting enjoyers
+15+
+Minecraft ARG enjoyers
+Regretavator cuties
+
 
 <p align="center">🔴 DNI
-13 and below || Immature kids
+14 and below || Immature kids
 Vivziepop supports
 Bodyshamers, racists (Careful jokes are okay)
+
 
 <p align="center">Warning when INT:
 Things I say can be out of pocket so if i said smt that made u feel uncomfy pls LMK!!! 
