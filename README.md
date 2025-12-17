@@ -32,7 +32,7 @@ Things I say can be out of pocket so if i said smt that made u feel uncomfy pls 
 
 <p align="center">Interests 𐙚 Phighting ~ DITF 𐙚 Blocktales(BT!) 𐙚 Garten of Banban(funni)
 𐙚 Bad Things 𐙚 Goat simulator 𐙚 R.E.P.O 𐙚 Pony town 𐙚 4saken 𐙚 Regretavator 𐙚 Minecraft args
-(Im literally rocket/Avery you just dont know. Strong kin moment)
+(Im literally Rocket irl you just dont know. Strong kin moment)
 
 <p align="center"> MY KIN LIST!!! (If Im gone... Remember me in them...) Artnotmine
 
