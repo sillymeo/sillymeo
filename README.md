@@ -1,6 +1,6 @@
 <p align="center"><tt>⸻✧⸻ 
 
-<p align="center"> HIII PONY TOWN!!! Refer me as... （-＾▽＾-) 
+<p align="center">
 Smile 𐙚 Meo 𐙚 Rocket
 									
 <p align="center">discord : smilevy
@@ -13,25 +13,8 @@ ISFP
 🔲 In menu ~ Prolly re/making || w2i
 👁️‍🗨️ Looking 4 chat/roleplay ~ Self explanatory, mostly chat tho 
 
-<p align="center"> 🟢INT
-Phighting enjoyers
-15+
-Regretavator cuties
-
-
-<p align="center">🔴 DNI
-14 and below || Immature kids
-Vivziepop supports
-Bodyshamers, racists (Careful jokes are okay)
-
-
-<p align="center">Warning when INT:
-Things I say can be out of pocket so if i said smt that made u feel uncomfy pls LMK!!! 
-
-
-<p align="center">Interests 𐙚 Phighting ~ DITF 𐙚 Blocktales(BT!) 𐙚 Garten of Banban(funni)
-𐙚 Bad Things 𐙚 Goat simulator 𐙚 R.E.P.O 𐙚 Pony town 𐙚 4saken 𐙚 Regretavator 𐙚 Minecraft args
-(Im literally Rocket irl you just dont know. Strong kin moment)
+<p align="center"> Reworking github lolz
+User experiences avoidant attachment every so often, please be mindful when interacting, ty <3
 
 
 <p align="center">⸻✧⸻
