@@ -1,11 +1,31 @@
 <p align="center"><i>⸻✧⸻
-<p align="center"> It's show time!!!
+<p align="center">$${\color{blue}KA-BOOM!!!}$$ 
 
 
 <p align="center"><img width="4096" height="4096" alt="Image" src="https://github.com/user-attachments/assets/b0457718-2f5f-4584-824a-b651b69cdab6" />
 <p align="center"> Rocket kin user <3
-<p align="center"> Feminine terms preferably but any works too!
+<p align="center"> Feminine terms preferably, but any works too!
 
+<p align="center">16- may interact w/ caution<br/> 
+17+ may INT! <3 <br/>
+I will not tolerate vivziepop *supporters* nor netizens who think being problematic is an aesthetic.<br/>
+This user has slight Phonophobia btw 
+
+𐙚 Interests 𐙚 
+⋆ Phighting! {P!}
+⋆ Regretavator (sorta)
+⋆ 4saken (Doublefedora shippers DNI /srs)
+⋆ R.E.P.O
+⋆ Little Nightmares
+⋆ SFAWTDE and a few mc args!
+⋆ andrewgaming67 (Another mc arg you guys should check it out)
+
+<p align="center"> 🟢 Online - INT is okay<br/> 
+🌜Idle - Offtab or afk - w2i<br/> 
+⛔️ Busy - Chores, studying, drawing, Not in the mood to talk<br/> 
+💬 Looking for chat/roleplay - self-explanatory and yeah <br/> 
+
+<p align="center"> I WILL MOST LIKELY APPROACH TO CUDDLE WITH YOU IF YOU HAVE C+H IN UR NAME!!!
 
 
 <p align="center">⸻✧⸻
