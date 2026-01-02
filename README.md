@@ -19,13 +19,18 @@ This user has slight Phonophobia btw
 ⋆ Little Nightmares
 ⋆ SFAWTDE and a few mc args!
 ⋆ andrewgaming67 (Another mc arg you guys should check it out)
+⋆ Endless torment trio (doors, pressure, grace)
+⋆ Meleeniacs
+⋆ Minecraft
+
 
 <p align="center"> 🟢 Online - INT is okay<br/> 
 🌜Idle - Offtab or afk - w2i<br/> 
 ⛔️ Busy - Chores, studying, drawing, Not in the mood to talk<br/> 
 💬 Looking for chat/roleplay - self-explanatory and yeah <br/> 
 
-<p align="center"> I WILL MOST LIKELY APPROACH TO CUDDLE WITH YOU IF YOU HAVE C+H IN UR NAME!!!
+<p align="center"> I WILL MOST LIKELY APPROACH TO CUDDLE WITH YOU IF YOU HAVE C+H IN UR NAME!!! <br/>
+IF YOU'RE PART OF MY INTERESTS THAT IS ^-^
 
 
 <p align="center">⸻✧⸻
