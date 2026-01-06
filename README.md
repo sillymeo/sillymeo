@@ -31,6 +31,8 @@ This user has slight Phonophobia btw
 
 <p align="center"> I WILL MOST LIKELY APPROACH TO CUDDLE WITH YOU IF YOU HAVE C+H IN UR NAME!!! <br/>
 IF YOU'RE PART OF MY INTERESTS THAT IS ^-^
+  
+<p align="center"><img width="1351" height="1013" alt="Image" src="https://github.com/user-attachments/assets/54f8045f-bffe-4f8c-b159-7bc78c8d4c08" />
 
 
 <p align="center">⸻✧⸻
