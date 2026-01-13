@@ -32,8 +32,13 @@ This user has slight Phonophobia btw
 
 <p align="center"> I WILL MOST LIKELY APPROACH TO CUDDLE WITH YOU IF YOU HAVE C+H IN UR NAME!!! <br/>
 IF YOU'RE PART OF MY INTERESTS THAT IS ^-^
+
+<p align="center"><font size="7"> Friend screenshots...<br> 
+<p align="center"><font size="5"> Ft. @thelostadventurer, @onlyheadshotss
   
 <p align="center"><img width="1351" height="1013" alt="Image" src="https://github.com/user-attachments/assets/54f8045f-bffe-4f8c-b159-7bc78c8d4c08" />
 
-
+![Image](https://github.com/user-attachments/assets/42d794ef-122a-4adb-89cf-008ecf6093fc)
+  
+<p align="center"><img width="424" height="318" alt="Image" src="https://github.com/user-attachments/assets/5a5b2477-dfe8-463a-9521-8826ad85af5c" />
 <p align="center">⸻✧⸻
