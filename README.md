@@ -10,7 +10,7 @@
 <p align="center">16- may interact w/ caution<br/> 
 17+ may INT! <3 <br/>
 I will not tolerate vivziepop *supporters* nor netizens who think being problematic is an aesthetic.<br/>
-This user has slight Phonophobia btw 
+Phonophobic
 
 𐙚 Interests 𐙚 
 ⋆ Phighting! {P!}
