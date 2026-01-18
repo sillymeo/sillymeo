@@ -41,4 +41,6 @@ IF YOU'RE PART OF MY INTERESTS THAT IS ^-^
 ![Image](https://github.com/user-attachments/assets/42d794ef-122a-4adb-89cf-008ecf6093fc)
   
 <p align="center"><img width="424" height="318" alt="Image" src="https://github.com/user-attachments/assets/5a5b2477-dfe8-463a-9521-8826ad85af5c" />
+  
+![Image](https://github.com/user-attachments/assets/8c7fa2b0-e76f-4a19-ae3b-d82ad959ae4b) ![Image](https://github.com/user-attachments/assets/405ecfe4-61fd-4051-b90b-fbdae95e34be)
 <p align="center">⸻✧⸻
