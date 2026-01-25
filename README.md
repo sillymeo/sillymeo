@@ -18,8 +18,7 @@ Phonophobic
 ⋆ 4saken (Doublefedora shippers DNI /srs)
 ⋆ R.E.P.O
 ⋆ Little Nightmares
-⋆ SFAWTDE and a few mc args!
-⋆ andrewgaming67 (Another mc arg you guys should check it out)
+⋆ SFAWTDE and a few mc args
 ⋆ Endless torment trio (doors, pressure, grace)
 ⋆ Meleeniacs
 ⋆ Minecraft
