@@ -1,5 +1,5 @@
 <p align="center"><i>⸻✧⸻
-<p align="center"> Taken by my beloved boyfriend @Normstray!!!
+<p align="center"> The D3rlord3 to my Avery @Normstray!!!
 <p align="center"> Sillymeo on all platforms! On Phighting Oregon servers(mostly).
 <p align="center"> Rocket kin! <br>
 <p align="center"> Dont be shy to c+h w/ me I wont mind ^-^
